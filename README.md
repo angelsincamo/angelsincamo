@@ -1,6 +1,6 @@
 <div align="center">
 
-[rentry](https://rentry.co/taracarpenter)
+[rentry](https://rentry.co/dreamflasher)
 ㅤㅤ(⇀‸↼ ") ..
 ㅤㅤ[twitter](https://twitter.com/tarasfreckles)
 
