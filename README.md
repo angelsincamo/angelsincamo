@@ -1,4 +1,5 @@
 
+
 <div align="center">
 
 [rentry](https://rentry.co/dreamflasher)
@@ -8,7 +9,7 @@
 </div>
 
 
-<p align="center"><img width="400" src="https://github.com/user-attachments/assets/6f9b9cbf-27a8-4458-90f0-f96eb0e40a5f"></p>
+<p align="center"><img width="600" src="https://github.com/user-attachments/assets/64a3085a-eecd-4c31-9670-620be9f7833f"></p>
 
 
 
