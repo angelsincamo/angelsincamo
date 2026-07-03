@@ -2,6 +2,12 @@
 
 <div align="center">
 
+taraㅤorㅤdreamyㅤꪆৎ ˚⋅ㅤgirlthingㅤwhoㅤcan ' tㅤbㅤnormalㅤaboutㅤJR
+
+sheㅤ⸝ㅤitㅤ✚ㅤfemmeㅤ🩸ㅤperma ー agereㅤbㅤkindㅤtoㅤme
+
+sawㅤjaneㅤliveㅤ6 𓈒 13 𓈒 26ㅤ♡
+
 [rentry](https://rentry.co/dreamflasher)
 ㅤㅤ(⇀‸↼ ") ..
 ㅤㅤ[twitter](https://twitter.com/princessremover)
